@@ -1,1 +1,1 @@
-Sommerlund è il mondo (o quantomeno l'emisfero) in cui avvengono tutte le avventure riguardanti il 
+Sommerlund è il mondo (o quantomeno l'emisfero) in cui avvengono tutte le avventure riguardanti il [[Diario degli eroi]], delle [[gemme]] e dei [[Se]]
