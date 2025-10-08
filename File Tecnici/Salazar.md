@@ -1,1 +1,1 @@
-Salazar è la capitale della [[Terra del vento]]. Essa si trova al centro della terra, su una collina in mezzo ad una pianura (molto stile Cavour) 
+Salazar è la capitale della [[Terra del vento]]. Essa si trova al centro della terra, su una collina in mezzo ad una pianura (molto stile Cavour) ed è il centro di quella che viene considerato lo studio delle metereologia: infatti, nella terra del vento, convergono tutti i venti di [[Sommerlund]], che qui sono incanalati e studiato all'
