@@ -1,0 +1,1 @@
+Salazar è la capitale della [[Terra del vento]], un
