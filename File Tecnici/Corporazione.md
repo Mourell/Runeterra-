@@ -1,1 +1,1 @@
-[[Sommerlund]] è un mondo 
+[[Sommerlund]] è un mondo abbastanza avanzato: ha le areonavi, una produzione (non di massa, ma in serie) di alcuni oggetti magici 
