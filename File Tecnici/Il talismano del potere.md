@@ -1,4 +1,4 @@
 Il talismano del potere è uno degli oggetti magici più potenti dell'intera [[Sommerlund]]. Esso sarebbe anche il titolo della [[Storia dei cacciatori di gemme|campagna]] che viene attualmente vissuta da [[Bard]], [[Mearbund]], [[Edwin]], [[Gormoth]] e [[Akub]] (ma loro non lo sanno e va bene lo stesso)
 
 #  Funzionamento e potere 
-Muahahahahahha, non lo sapete ancora. Ricordando quello che c'è scritto nelle prime due pagine, servono tutte le gemme per attivarlo e che, presumibilmente, permette di controllare gli elementi di [[Sommerlund]] tutti assieme. Per il resto, non sapete né dov'è né se ci
+Muahahahahahha, non lo sapete ancora. Ricordando quello che c'è scritto nelle prime due pagine, servono tutte le gemme per attivarlo e che, presumibilmente, permette di controllare gli elementi di [[Sommerlund]] tutti assieme. Per il resto, non sapete né dov'è né se ci sia qualche rituale o azione specifica da fare per attivarlo (oltre a recuperare le [[gemme]]).
