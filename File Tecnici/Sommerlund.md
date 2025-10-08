@@ -11,4 +11,5 @@ Nel continente settentrionale, il cui nome è *Valoran*, le terre sono:
 - [[Terra del ghiaccio]], la cui capitale è [[Berhart]]
 - [[Terra dell'acqua]], la cui capitale è [[Medrash]]
 - [[Terra delle montagne]], chiamata anche [[Terra delle montagne|Terra delle rocce]], la cui capitale è [[Helja]]
-Infine, a est, c'è la [[Terra del fuoco]]
+Inoltre, a est, c'è la [[Terra del fuoco]], un gruppo di isole a loro stanti, la cui capitale è [[Kashuri]].
+Infine, al di fuori della giurisdizione di [[Jar]]
