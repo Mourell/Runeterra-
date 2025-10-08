@@ -7,5 +7,6 @@ In tutte le terre definite "elementali" vi è un elemento naturale che ne predom
 - [[Terra delle sabbie]], la cui capitale è [[Tawar]]
 - [[La Grande Terra]], la cui capitale è [[Sheelala]]
 Nel continente settentrionale, il cui nome è *Valoran*, le terre sono: 
-- [[Terra del Giorno]], la cui capitale è [[Tuang]]
-- [[Terra del ghiaccio]], 
+- [[Terra del giorno]], la cui capitale è [[Tuang]]
+- [[Terra del ghiaccio]], la cui capitale è [[Berhart]]
+- 
