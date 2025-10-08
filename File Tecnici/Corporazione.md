@@ -1,1 +1,1 @@
-[[Sommerlund]] è un mondo abbastanza avanzato: ha le areonavi, una produzione (non di massa, ma in serie) di alcuni oggetti magici 
+[[Sommerlund]] è un mondo abbastanza avanzato: ha le areonavi, una produzione (non di massa, ma in serie) di alcuni oggetti magici di uso quotidiano, una comprensione basica della polvere da sparo e del suo funzionamento (sotto forma di cannoni, moschetti o pistole a colpo singolo, nulla a che vedere con revolver o simili). 
