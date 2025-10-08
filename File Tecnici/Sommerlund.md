@@ -10,4 +10,5 @@ Nel continente settentrionale, il cui nome è *Valoran*, le terre sono:
 - [[Terra del giorno]], la cui capitale è [[Tuang]]
 - [[Terra del ghiaccio]], la cui capitale è [[Berhart]]
 - [[Terra dell'acqua]], la cui capitale è [[Medrash]]
-- [[Terra delle montagne]], chiamata anche [[Terra delle montagne|Terra delle rocce]], 
+- [[Terra delle montagne]], chiamata anche [[Terra delle montagne|Terra delle rocce]], la cui capitale è [[Helja]]
+Infine, a est, c'è la [[Terra del fuoco]]
