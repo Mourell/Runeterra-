@@ -1,1 +1,1 @@
-Salazar è la capitale della [[Terra del vento]], un
+Salazar è la capitale della [[Terra del vento]]. Essa si trova al centro della terra, su una collina in mezzo ad una pianura (molto stile Cavour) 
