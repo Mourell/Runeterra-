@@ -1,2 +1,2 @@
 Sommerlund è il mondo (o quantomeno l'emisfero) in cui avvengono tutte le avventure riguardanti il [[Diario degli eroi]], delle [[gemme]] e dei [[Seguaci di Xiphos]]. 
-Il nome *Sommerlund* è un termine nanico, che significa "Terre Unite", che è stato coniato dopo l'unificazione dei diversi territori sotto un unico Re. Prima di tutto ciò,
+Il nome *Sommerlund* è un termine nanico, che significa "Terre Unite", che è stato coniato dopo l'unificazione dei diversi territori sotto un unico Re. Prima di tutto ciò, il termine più utilizzato per indicare questo mondo era principalmente *Runeterra* con annesse varianti in base ai dialetti. 
