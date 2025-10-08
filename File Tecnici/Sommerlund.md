@@ -3,7 +3,9 @@ Il nome *Sommerlund* è un termine nanico, che significa "Terre Unite", che è s
 Al giorno d'oggi, essa è divisa in 8 diverse terre "Elementali" e una "*Grande Terra*", la quale è la sede della monarchia che regna su Sommerlund. 
 In tutte le terre definite "elementali" vi è un elemento naturale che ne predomina il paesaggio, la flora, la fauna, le razze, gli usi e i costumi in modo schiacciante. Qui di seguito vengono elencate le 8 diverse terre iniziando in quelle nel continente meridionale, il cui nome è *Shurima* :
 - [[Terra del vento]], la cui capitale è [[Salazar]]
+- [[Terra della notte]], la cu capitale è [[Habor]]
 - [[Terra delle sabbie]], la cui capitale è [[Tawar]]
 - [[La Grande Terra]], la cui capitale è [[Sheelala]]
 Nel continente settentrionale, il cui nome è *Valoran*, le terre sono: 
-- [[Terra del Giorno]], la cui capitale è [[]]
+- [[Terra del Giorno]], la cui capitale è [[Tuang]]
+- [[Terra del ghiaccio]], 
