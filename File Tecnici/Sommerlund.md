@@ -1,3 +1,5 @@
+*"Ah, gli abitanti di Runeterra... "*
+
 Sommerlund è il mondo (o quantomeno l'emisfero) in cui avvengono tutte le avventure riguardanti il [[Diario degli eroi]], delle [[gemme]] e dei [[Seguaci di Xiphos]]. 
 Il nome *Sommerlund* è un termine nanico, che significa "Terre Unite", che è stato coniato dopo l'unificazione dei diversi territori sotto un unico Re. Prima di tutto ciò, il termine più utilizzato per indicare questo mondo era principalmente *Runeterra* con annesse varianti in base ai dialetti. 
 Al giorno d'oggi, essa è divisa in 8 diverse terre "Elementali" e una "*Grande Terra*", la quale è la sede della monarchia che regna su Sommerlund. 
