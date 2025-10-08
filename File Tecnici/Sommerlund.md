@@ -13,3 +13,6 @@ Nel continente settentrionale, il cui nome è *Valoran*, le terre sono:
 - [[Terra delle montagne]], chiamata anche [[Terra delle montagne|Terra delle rocce]], la cui capitale è [[Helja]]
 Inoltre, a est, c'è la [[Terra del fuoco]], un gruppo di isole a loro stanti, la cui capitale è [[Kashuri]].
 Infine, al di fuori della giurisdizione di re [[Jarvan IV]], quindi facente parte di nessuna terra, vi è un arcipelago, il cui nome è [[Isole Serpente]], dove vi risiedono tutti coloro che hanno deciso di darsi ad una vita "piratesca" e al di sotto di nessuna legge (anche se, in questo arcipelago, ci sono alcune personalità più influenti di altre che "dettano" la loro legge)
+(inserire immagine)
+
+# Storia 
