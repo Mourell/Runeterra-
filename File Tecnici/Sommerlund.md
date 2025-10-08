@@ -9,4 +9,4 @@ In tutte le terre definite "elementali" vi è un elemento naturale che ne predom
 Nel continente settentrionale, il cui nome è *Valoran*, le terre sono: 
 - [[Terra del giorno]], la cui capitale è [[Tuang]]
 - [[Terra del ghiaccio]], la cui capitale è [[Berhart]]
-- 
+- [[Terra dell'acqua]],
