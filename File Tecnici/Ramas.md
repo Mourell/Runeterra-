@@ -1,3 +1,3 @@
-*"Un Ramas n"*
+*"Un Ramas non combatte per la gloria, ma per giustizia"*
 
-I *Ramas* 
+I *Ramas* sono uno dei due corpi "militari"
