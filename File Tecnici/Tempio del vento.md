@@ -1,2 +1,3 @@
 Il tempio del vento è l'edificio centrale e di maggior importanza nella città di [[Salazar]], nella [[Terra del vento]]. 
 Esso è caratterizzato da una pianta ottagonale, un soffitto a cupola bucata (tipo Pantheon di Roma) ed è principalmente costituito di granito. 
+Al centro di ogni lato c'è un buco nel soffitto con una tubatura in vetro che scende: essa serve ad incanalare il vento proveniente da una specifica dir
