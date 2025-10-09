@@ -2,4 +2,4 @@
 
 Il diario degli eroi è un diario (ma dai?) magico che indica, seppur in modo criptico e misterioso, la locazione delle diverse [[gemme]] nelle diverse terre. 
 Esso è stato ritrovato dai nostri eroi presso un gruppo di ribelli, che lo avevano trafugato durante una visita alla biblioteca del [[Tempio del vento]]. 
-Inoltre, il diario parla di u
+Inoltre, il diario parla di un certo prescelto (che fantasia eh?) che però non sembra ancora essersi palesato (o forse sì?).
