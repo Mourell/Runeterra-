@@ -1,0 +1,3 @@
+Faretra magica di incredibile bellezza e rarità. Ritrovata nelle profondità del dungeon di [[Salazar]], assieme ad un [[Arco di Ehlonna|arco magico]]. 
+Effetto magico: "*Ciascuno dei tre compartimenti della faretra è collegato a uno spazio extradimensionale che le permetta di trasportare numerosi oggetti non pesando mai più di 1 chilo. Il compartimento più piccolo può contenere fino a 60 frecce, saette od oggetti simili. Il compartimento mediano può contenere fino a 18 giavellotti od oggetti simili. Il compartimento più lungo può contenere fino a 6 oggetti lunghi, come archi, bastoni da combattimento o lance.  
+Puoi estrarre qualsiasi oggetto contenuto nella faretra come se lo stessi prendendo da una normale faretra o fodero."
